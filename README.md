@@ -2,7 +2,7 @@
 
 _Contact me: [@LinkedIn][Link_to_LinkedIn], [@Email/University][Mailto_QueensuMail] - `minhhoang.ton@queensu.ca`, [@Email/Gmail][Mailto_WorkMail] - `tonminhhoang.work@gmail.com`_
 
-_Professional info: [Resume]()_
+_Professional info: [Resume]()_ | _Notable activities:_ \[Grab x UNDP\] Grab the Future Hackathon 2026
 
 ### 🌱 Getting to know me
 
